@@ -3,7 +3,7 @@
 > Australia's AI-powered trading platform — built for smarter, faster, 
 > and more confident investing in the Australian market.
 
-[tractmercholmai.com](http://tractmercholmai.com/)
+👉 [tractmercholmai.com](http://tractmercholmai.com/) 👈
 
 ---
 
